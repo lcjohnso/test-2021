@@ -2,3 +2,4 @@
 [CIERA Homepage](https://ciera.northwestern.edu/)
 
 [CIERA REU](https://sites.northwestern.edu/cierareu/)
+Cardinals are the best!
